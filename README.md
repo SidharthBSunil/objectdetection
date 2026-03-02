@@ -74,3 +74,4 @@ To make this truly "investor-ready," would you like me to draft a script for a 2
 
 
 https://g.co/gemini/share/cc29eeeb50a3
+https://g.co/gemini/share/4e25c921439a
