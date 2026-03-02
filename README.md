@@ -69,3 +69,8 @@ Slide 7: Revenue Model & Unit Economics
  * Data Insights: Future revenue from lending (NBFC partnerships) based on the machine's verified cash-flow data.
 Next Steps for Your Pitch
 To make this truly "investor-ready," would you like me to draft a script for a 2-minute elevator pitch or calculate the Payback Period for a typical print shop owner to show them how quickly they'll recover the ₹1,000 installation fee?
+
+
+
+
+https://g.co/gemini/share/cc29eeeb50a3
