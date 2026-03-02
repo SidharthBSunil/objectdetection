@@ -75,3 +75,7 @@ To make this truly "investor-ready," would you like me to draft a script for a 2
 
 https://g.co/gemini/share/cc29eeeb50a3
 https://g.co/gemini/share/4e25c921439a
+
+
+
+https://www.canva.com/design/DAHCxb-dp4c/yJ8se-p6SwOCdVkgqerkSw/edit?utm_content=DAHCxb-dp4c&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
